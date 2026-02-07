@@ -1,4 +1,5 @@
 <img width="1500" height="500" alt="Untitled201_20260201230751" src="https://github.com/user-attachments/assets/34665c04-125c-45be-bffb-0fb193b03e41" />
+—— https://rentry.co/nuzi4ever —— 
 
 hi i'm tessa or uzi or just call me maikol if u wanna have my unique name incase you know other twenty uzis or tessas
 
