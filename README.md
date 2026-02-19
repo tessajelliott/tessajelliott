@@ -8,6 +8,8 @@ i love nuzi and nessa and my brain is a machine that makes every ship transmasc4
 u should fr treat me like uzi and/or tessa they're me. me in the flesh/metal
 
 ![Untitled218_20260207185817](https://github.com/user-attachments/assets/cdbfc08a-82be-49ba-8c08-dbd00aafddef)
+![i-think-he-looks-a-little-gay-v0-eyqzulxov2kg1](https://github.com/user-attachments/assets/4b2afa59-5ce6-405e-b85e-171775e7ec62)
+
 
 
 ![](https://i.postimg.cc/qR166Kpc/Notepad-202601281921-55096.jpg)
