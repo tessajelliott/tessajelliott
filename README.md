@@ -11,11 +11,13 @@ i love nuzi and my brain is a machine that makes every ship transmasc4transmasc
 
 u should fr treat me like uzi and/or tessa they're me. me in the flesh/metal
 
+mention cynessa or j x tessa near me and you will get killed. be normal. pls. panic au fans will be ripped apart
+
 ![Untitled218_20260207185817](https://github.com/user-attachments/assets/cdbfc08a-82be-49ba-8c08-dbd00aafddef)
 ![i-think-he-looks-a-little-gay-v0-eyqzulxov2kg1](https://github.com/user-attachments/assets/4b2afa59-5ce6-405e-b85e-171775e7ec62)
 
 
 
-mention cynessa or j x tessa near me and you will get killed. be normal. pls. panic au fans will be ripped apart
+
 
 ![](https://komarev.com/ghpvc/?username=tessajelliott&color=grey)
