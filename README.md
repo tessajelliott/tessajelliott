@@ -16,6 +16,6 @@ u should fr treat me like uzi and/or tessa they're me. me in the flesh/metal
 
 
 
-mention cynessa or j x tessa near me and you will get killed. be normal. pls
+mention cynessa or j x tessa near me and you will get killed. be normal. pls. panic au fans will be ripped apart
 
 ![](https://komarev.com/ghpvc/?username=tessajelliott&color=grey)
