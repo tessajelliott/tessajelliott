@@ -3,7 +3,7 @@
 banner by me inspired by an image i found on google :trollface:
 
 
-—— https://rentry.co/nuzi4ever —— 
+—— [shared nuzi rentry<3](https://rentry.co/nuzi4ever) —— 
 
 ★—★—★—★—★—★—★—★—★—★
 
