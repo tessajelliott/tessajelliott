@@ -1,4 +1,8 @@
-<img width="1500" height="500" alt="Untitled201_20260201230751" src="https://github.com/user-attachments/assets/34665c04-125c-45be-bffb-0fb193b03e41" />
+<img width="500" height="200" alt="pan4pan nuzi by me tessajelliott aka rodolfimho" src="https://github.com/user-attachments/assets/34665c04-125c-45be-bffb-0fb193b03e41" />
+
+banner by me inspired by an image i found on google :trollface:
+
+
 —— https://rentry.co/nuzi4ever —— 
 
 ★—★—★—★—★—★—★—★—★—★
@@ -13,10 +17,11 @@ u should fr treat me like uzi and/or tessa they're me. me in the flesh/metal
 
 dni: tessa x j, j x uzi, v x uzi (well you can interact but don't mention those), cyn fictionkin/fictives iwec, cyn roleplayers dni dni DNI!!!!!!, any n ships except nuzi iwec, panic au fans will be ripped apart
 
-![Untitled218_20260207185817](https://github.com/user-attachments/assets/cdbfc08a-82be-49ba-8c08-dbd00aafddef)
-![i-think-he-looks-a-little-gay-v0-eyqzulxov2kg1](https://github.com/user-attachments/assets/4b2afa59-5ce6-405e-b85e-171775e7ec62)
+<img width="200" height="400" alt="art by me tessajelliott aka rodolfimho" src="https://i.postimg.cc/63f5rj4X/Untitled218-20260207185817.jpg"/>
 
+<img width="300" height="400" alt="khan thinks he looks a lil gay" src="https://i.postimg.cc/2S9Wv6RF/i-think-he-looks-a-little-gay-v0-eyqzulxov2kg1.jpg"/>
 
+<img width="300" height="400" alt="gay transmasc nuzi!! art by eveledoze picmix by me tessajelliott" src="https://i.postimg.cc/XJk7fHBX/picmix-com-13468971.gif"/>
 
 
 
