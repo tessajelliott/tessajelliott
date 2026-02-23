@@ -7,7 +7,6 @@ banner by me inspired by an image i found on google :trollface:
 
 ★—★—★—★—★—★—★—★—★—★
 
-pls click on my [guns.lol](https://guns.lol/thepromening)
 
 hi i'm uzi(el) or tessa or just call me maikol if u wanna have my unique name incase you know other twenty uzis or tessas
 
@@ -26,4 +25,6 @@ dni: tessa x j, j x uzi, v x uzi (well you can interact but don't mention those)
 
 
 ![](https://komarev.com/ghpvc/?username=jaxtoy&color=grey)
+
+
 (view counter shared across accounts)
