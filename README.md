@@ -25,4 +25,5 @@ dni: tessa x j, j x uzi, v x uzi (well you can interact but don't mention those)
 
 
 
-![](https://komarev.com/ghpvc/?username=tessajelliott&color=grey)
+![](https://komarev.com/ghpvc/?username=jaxtoy&color=grey)
+(view counter shared across accounts)
