@@ -22,6 +22,8 @@ dni: tessa x j, j x uzi, v x uzi (well you can interact but don't mention those)
 
 <img width="300" height="400" alt="gay transmasc nuzi!! art by eveledoze picmix by me tessajelliott" src="https://i.postimg.cc/XJk7fHBX/picmix-com-13468971.gif"/>
 
+<img width="300" height="400" alt="" src="https://i.postimg.cc/HshpLvPC/Untitled256.png"/>
+
 
 
 ![](https://komarev.com/ghpvc/?username=jaxtoy&color=grey)
