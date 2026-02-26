@@ -10,11 +10,13 @@ banner by me inspired by an image i found on google :trollface:
 
 hi i'm uzi(el) or tessa or just call me maikol if u wanna have my unique name incase you know other twenty uzis or tessas
 
+please read my rentry & strawpage before interacting
+
 i love nuzi and my brain is a machine that makes every ship transmasc4transmasc
 
 u should fr treat me like uzi and/or tessa they're me. me in the flesh/metal
 
-dni: tessa x j, j x uzi, v x uzi (well you can interact but don't mention those), cyn fictionkin/fictives iwec, cyn roleplayers dni dni DNI!!!!!!, any n ships except nuzi iwec, hellaverse & hoyoverse fandoms iwc, panic au fans will be ripped apart
+dni: j x tessa, j x uzi, v x uzi, cyn x uzi (well you can interact but don't mention those), cyn fictionkin/fictives iwec, cyn roleplayers dni dni DNI!!!!!!, any n ships except nuzi iwec, hellaverse & hoyoverse fandoms iwc, panic au fans will be ripped apart
 
 <img width="200" height="400" alt="art by me tessajelliott aka rodolfimho" src="https://i.postimg.cc/63f5rj4X/Untitled218-20260207185817.jpg"/>
 
