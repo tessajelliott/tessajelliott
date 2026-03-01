@@ -5,6 +5,8 @@ banner by me inspired by an image i found on google :trollface:
 
 —— [shared nuzi rentry<3](https://rentry.co/nuzi4ever) —— 
 
+
+—— [my tumblr](https://www.tumblr.com/rodolfimho?source=share) ——
 ★—★—★—★—★—★—★—★—★—★
 
 
