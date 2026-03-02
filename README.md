@@ -23,6 +23,7 @@ u should fr treat me like uzi and/or tessa they're me. me in the flesh/metal
 dni: j x tessa, j x uzi, v x uzi, cyn x uzi (well you can interact but don't mention those), cyn fictionkin/fictives iwec, cyn roleplayers dni dni DNI!!!!!!, any n ships except nuzi iwec, hellaverse & hoyoverse fandoms iwc, panic au fans will be ripped apart
 
 <img width="200" height="600" alt="art by me tessajelliott aka rodolfimho" src="https://i.postimg.cc/6qs6yb7Z/Untitled286-20260302183127.png"/>
+i died for your cyns.. become a uzian /silly
 
 <img width="200" height="400" alt="art by me tessajelliott aka rodolfimho" src="https://i.postimg.cc/63f5rj4X/Untitled218-20260207185817.jpg"/>
 
