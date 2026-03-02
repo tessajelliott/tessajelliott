@@ -22,13 +22,14 @@ u should fr treat me like uzi and/or tessa they're me. me in the flesh/metal
 
 dni: j x tessa, j x uzi, v x uzi, cyn x uzi (well you can interact but don't mention those), cyn fictionkin/fictives iwec, cyn roleplayers dni dni DNI!!!!!!, any n ships except nuzi iwec, hellaverse & hoyoverse fandoms iwc, panic au fans will be ripped apart
 
+<img width="200" height="600" alt="art by me tessajelliott aka rodolfimho" src="https://i.postimg.cc/6qs6yb7Z/Untitled286-20260302183127.png"/>
+
 <img width="200" height="400" alt="art by me tessajelliott aka rodolfimho" src="https://i.postimg.cc/63f5rj4X/Untitled218-20260207185817.jpg"/>
 
 <img width="300" height="400" alt="khan thinks he looks a lil gay" src="https://i.postimg.cc/2S9Wv6RF/i-think-he-looks-a-little-gay-v0-eyqzulxov2kg1.jpg"/>
 
 <img width="300" height="400" alt="gay transmasc nuzi!! art by eveledoze picmix by me tessajelliott" src="https://i.postimg.cc/XJk7fHBX/picmix-com-13468971.gif"/>
 
-<img width="300" height="400" alt="" src="https://i.postimg.cc/HshpLvPC/Untitled256.png"/>
 
 
 
