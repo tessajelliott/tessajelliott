@@ -12,7 +12,7 @@ banner by me inspired by an image i found on google :trollface:
 ★—★—★—★—★—★—★—★—★—★
 
 
-hi i'm uzi(el) or tessa or just call me maikol if u wanna have my unique name incase you know other twenty uzis or tessas
+hi i'm uzi(el) or jay or tessa or just call me maikol if u wanna have my unique name incase you know other twenty uzis or tessas
 
 please read my rentry & strawpage before interacting
 
